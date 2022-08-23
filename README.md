@@ -1,7 +1,7 @@
 ### Hi there 👋
 I'm Christeena S Anakkallumkal
 
-   -🔭 A passionate Computer Science and Engineering Student
+   -🔭 A passionate Computer Science and Engineering Graduate
    
    -📫 How to reach me: christeenasunil2000@gmail.com
    
